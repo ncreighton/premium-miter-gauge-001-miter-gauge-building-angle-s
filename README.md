@@ -1,0 +1,2 @@
+# premium-miter-gauge-001-miter-gauge-building-angle-s
+Stop losing track of your miter gauge builds and angle slide experiments—this Notion template turns your messy workshop notes into a streamlined, repeatable system.  The Miter Gauge Building &amp; Angle Slide Craft Hub organizes every angle, material, and step of your project in one place. You'll eliminate measurement errors, speed up setup time, and f
